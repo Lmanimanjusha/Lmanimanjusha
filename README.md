@@ -11,6 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with mathematics
 - 💬 Ask me about anything
 - 📫 How to reach me: [gmail](manjusha1729@gmail.com)
-- 😄 Pronouns: 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: funny and hyperactive  
 
